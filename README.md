@@ -1,0 +1,1 @@
+# Malung-Sälens kommun
